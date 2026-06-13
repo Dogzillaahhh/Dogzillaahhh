@@ -11,7 +11,9 @@ _I don't mind if you want to match ponies or pfps😳(if you're one of my friend
 
 Socials⬇️
 
-Tiktok: @negans.why
+Tiktok: @negans.why (I don't post)
+
+Discord: @negans.why
 
 Strawpage: https://miaazz.straw.page
 
