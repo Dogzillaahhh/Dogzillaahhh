@@ -5,7 +5,7 @@ Call me <ins>Mia</ins> or <ins>ANY</ins> nickname !!! I dont mind at all!!
 
 _I don't mind if you just c+h , Im not that good interacting with people online💔 I only come up to people if they decide to interact with me or talk 2 me_
 
-I mostly play in Fashion roullettes and you might see me in the water behind the boat occasionally👀 sometimes i roleplay in kingdoms...
+I mostly play in Fashion roullettes and you can see me mainly in the water behind the docks !!! sometimes i roleplay in kingdoms...
 
 _I don't mind if you want to match ponies or pfps😳(if you're one of my friends)_
 
@@ -42,9 +42,7 @@ If you play AFK Journey add me..I need help
 
 ## Interests 👀
 
-I REAALLLYY like Jeffrey Dean Morgan👀👀
+I REAALLLYY like Jeffrey Dean Morgan👀👀 AND CYRAN FROM AFKJ👀👀👀👀
 
-I also like The Walking Dead, Supernatural and The Maze Runner👀
-
-I draw sometimes.. IM NOT A PRO!!!!! I used to paint but I stopped because my gouache turned moldy😂😂✌️
+I REAALLLYYY like cheesecake, coca cola, reeses and and and and yeah
 
