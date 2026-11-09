@@ -1,17 +1,10 @@
 # HELLOO
-***C+H FREELY!!!!⚠️***
 
 Call me <ins>Mia</ins> or <ins>ANY</ins> nickname !!! I dont mind at all!!
 
-_I don't mind if you just c+h , Im not that good interacting with people online💔 I only come up to people if they decide to interact with me or talk 2 me_
-
-I mostly play in Fashion roullettes and you can see me mainly in the water behind the docks !!! sometimes i roleplay in kingdoms...
-
-_I don't mind if you want to match ponies or pfps😳(if you're one of my friends)_
+I mostly play in Fashion roullettes and you can see me mainly in the water behind the docks !!! sometimes i spec in kingdoms . . .
 
 Socials⬇️
-
-Tiktok: @negans.why (I don't post)
 
 Discord: @negans.why
 
@@ -37,12 +30,3 @@ Add me on roblox if you want to👀👀 USER: Dogzillahhz
 
 I also play fortnite..sometimes USER:Dogzillahh
 I AM POOR!
-
-If you play AFK Journey add me..I need help
-
-## Interests 👀
-
-I REAALLLYY like Jeffrey Dean Morgan👀👀 AND CYRAN FROM AFKJ👀👀👀👀
-
-I REAALLLYYY like cheesecake, coca cola, reeses and and and and yeah
-
