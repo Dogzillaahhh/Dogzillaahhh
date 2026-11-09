@@ -8,8 +8,6 @@ Socials⬇️
 
 Discord: @negans.why
 
-Strawpage: https://miaazz.straw.page
-
 Ata book : https://dogzilla.atabook.org
 
 ## Ponyies🔥
